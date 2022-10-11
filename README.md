@@ -11,9 +11,9 @@ Guia #05 - 100% avance
 #
 Guia #06 - 100% avance
 #
-Guia #07 - no asignada
+Guia #07 - 100% avance
 #
-Guia #08 - no asignada
+Guia #08 - 100% avance
 #
 Guia #09 - no asignada
 #
