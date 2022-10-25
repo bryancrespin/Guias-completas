@@ -15,7 +15,7 @@ Guia #07 - 100% avance
 #
 Guia #08 - 100% avance
 #
-Guia #09 - no asignada
+Guia #09 - 100% avance
 #
-Guia #10 - no asignada
+Guia #10 - 100% avance
 
